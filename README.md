@@ -1,1 +1,1 @@
-# myk1012.io
+# mustrip.io
